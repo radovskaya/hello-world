@@ -2,5 +2,5 @@
 first created repository 
 
 
-Dearest creature in cration 
+Dearest creature in creation 
 Study english pronunciation 
